@@ -4,4 +4,4 @@
 
 Content to be done on collaboration and such and such
 
-taught by @Barissa-Imran .
+taught by @Barissa-Imran.
